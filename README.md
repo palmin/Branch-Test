@@ -11,5 +11,5 @@ Fyret
 Klemmelus
 
 Kokk
-Kkkkffrvh
+Kkkkff
 
