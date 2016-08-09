@@ -8,7 +8,7 @@ dddss2
 Fyret
 
 
-Klemme
+Klemmelus
 
 Kokk
 Kkkkffrvh
